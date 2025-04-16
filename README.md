@@ -57,4 +57,4 @@ Celestial Launcher is not affiliated with or endorsed by Riot Games. League of L
 
 ---
 
-© 2024 Divine Skins. All rights reserved.
+© 2025-Ongoing Divine Skins. All rights reserved.
